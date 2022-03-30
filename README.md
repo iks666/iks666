@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @iks666
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in science (chemistry), music, Batman, Boxing, Bodybuilding
+- 🌱 I’m currently learning Programing (im new)
+- 💞️ I’m looking to collaborate on any XD
 - 📫 How to reach me ?
 email brychczyskiigor885@gmail.com
 
