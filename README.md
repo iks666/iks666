@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any XD
 - 📫 How to reach me ?
 email brychczyskiigor885@gmail.com
-code in progress
+- code in progress
 
 <!---
 iks666/iks666 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
